@@ -1,0 +1,1 @@
+# lamzztak-pedo.github.io
